@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GOSA940715MDFNNN00
+GOSA940715MDFNNN00
